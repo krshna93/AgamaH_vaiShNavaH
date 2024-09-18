@@ -1202,14 +1202,3 @@ title: महानारायणोपनिषत् सस्वराः (�
   
 ॐ शान्तिः॒ शान्तिः॒ शान्तिः॑ ॥  
   
-  
-  
-It appears that Mahanarayana Upanishad was also known as  
-Yajnikyopanishad, and same as Taittiriya Aranyaka Prapathaka 10.  
-Neither Narayana U. nor Tripad-Mahanarayana U. correspond  
-to this. U-B's bhashya makes no mention of this. It is not  
-mentioned in Muktika U. list of 108 U.  
-  
-Original text Encoded and proofread by Sunder Hattangadi  
-sunderh at hotmail.com . Accents by Mandar Mali  
-  
